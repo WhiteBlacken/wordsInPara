@@ -288,3 +288,182 @@ social mobility
 * off the top of their head
 * a resounding 91% of us
 * in favour of more transparency
+
+## Northen Rock in insolvency
+* with confidence in the U.K.'s banking system stretched,the government felt it had little choice but to step in with a definitive gesture to stem the panic.
+* Users can squirrels away at the bank
+* shares in Northen Rock  
+    >stocks shot up/substantial stockholders
+* low cast base,loyal customers and slick operation
+* rather than lending around their cash,banks have taken to hoarding it.
+* with that risky debt spliced,repackaged and sold around the world.  
+    >Subprime mortgage crisis(standard)/risky debt crisis
+
+## computer transformation
+* transform other sectors of the economy  
+     >the sagging economy
+* encourage the market forces to hasten the pace of  technology-aied change in industries
+* health care,electric utilities and transportation
+* adopt modern computing tools
+* prod industry to  
+     >stimulate industry to 
+* produce jobs opportunity
+    >a big sources of new jobs
+* tax break for technology companies
+* employment in railroad industry level off
+
+## companies step in middle age
+* upgrade facilities and expand into new market
+* revolutionize their industries
+* issue a collective judgement
+* Dilligent,you see,has nothing to do with how long you study-it has to do with how indulged you are.
+* chump
+* cut capital spend/stocks shot up/anounce sharp cutbacks in U.S. expansion
+* it's the obverse of
+* keep it in line with
+* hip
+
+## Economic focus on financial industry
+* contribute more to the national economy than any other G8 captial bar Tokyo
+* deputy governor of the bank of England
+* put coarsely
+* be exposed to the gyrations of world market
+* spell trouble for
+* squeeze tax revenues from business
+* labor and finance capitalists are tranditionally sworn enemies
+* see sth. as a beacon of national excellence
+* basic **tenets**/doctrine
+* concentrate on your **specialisms**
+* **knock at** cheap goods
+* there can be **dire** consequences for the **also-rans**
+* bond traders
+* private equity,taxing
+non-domiciles  
+    >residence,dwelling place
+
+## the enhanced role of IMF in coorinating nations
+* **convene** urgent talks
+* be **ochestrated** by  
+    >be hosted by/be ploted by
+* give the IMF the **enhanced** role in coordinating multinational efforts to 
+* **address** the global imbalances
+* resolve **misalignments** and imbalance
+* be endorsed by
+    >be supported by/favourable poll results
+* multilateral **surveillance**/supervision
+* prevent a disorderly **unravelling**of the global imbalances  
+    >unravel a legacy
+
+## rating war from TV to Web
+* couch potato
+    >sell **suds** to the **spuds**
+* have no intention of surrending to **relative upstarts**
+* fuss over
+* venture capitalists
+
+## Prisoners of Technology
+* contractual arrangements
+* be preoccupied with the quest to enclose a vast geographic frontier
+* the ealier generation/the dotcom generation
+    >the dotcom bubble
+* make time itself the most scarcest of all resources
+* intranet
+* usher
+    >i usher him into the office
+* the techo gurus
+* the great **proliferation** of labor-and time-saving services
+* frantically
+* the loss of the moral compass and religious values
+
+## will genetic data bank go further?
+* favourable poll results
+    >be endorsed by
+* lucrative contract
+    >contractual arrangements
+* lurid
+    >slick operation
+* **engender** considerable **cynicism**
+    >provoke
+* allegation of corruption  
+    >bring a suit against/prosecute/charge/sue
+
+## bridge the gap between the poor and the rich
+* resilience
+* arduousness
+* income disparity  
+>gap between the poor and the rich
+* tax base
+* improve the imfrastructure of
+* provide sound social welfare
+
+## Monopoly giants is still at large
+* state attorney generals
+    >general counsel
+* general counsel
+* suppress a big grin
+* be pressing for stiffer penalties
+* terminate the illegal monoply
+
+## oil spill
+* seal the **well**
+* get a final wallop of
+* gall bladder  
+    >bladder is within normal limit
+* avoid the usual **mating** grounds
+* siphoned up from the wellhead
+* prodigious application of chemical  
+    >the proliferation of
+* bury in **layers** of **sediment** on the sea floor  
+    >sunk to the bottom
+* worry that sth. is too small  
+    >fuss
+* biodegrade
+* the process is already **under way**
+* in tiny specks
+* endanger marine life
+* gobble away  
+    >chomp oil/digest
+* oceanographer
+* chemical dispersants
+* the food chain
+* push the **slick** inland  
+    >slick operation
+* discernible effect
+
+## globalization
+* the financial crash exposed how detached the global economy has become from our values
+* global epidemic of youth unemployment
+* misalignment
+* experience large **spikes** in worklessness
+    >increase/proliferation/boom
+* promote the **cause** of education
+* in this **capacity**
+* this case is **compelling**.
+* on the twin **pillars** of ethics and economics
+* in the accompany of = be accompanied by
+* sluggish growth
+    >the sagging economy
+* the sides of the same coin
+
+## US Interstate HighWay System
+* an feat of unprecedent proportion
+* allow for rapid transport of goods and people
+* has legitimate claim to 
+* be motivated by  
+    >prod...to/stimulate...to
+* the population's **disposable** income soar
+    >the development of personal budget  
+    disposable mask
+* the same surge in car ownership
+    >boom/proliferation/soar
+* gasoline
+* have a keen eye on
+* at a fraction of the time = quickly
+
+## free market
+* the primary stimulate
+* fierce competitors
+* edge
+* self-perpetuating
+* it can be arguable stated = no doubt
+* deal with competition just as well equipped as its own.
