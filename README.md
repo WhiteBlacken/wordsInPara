@@ -430,12 +430,17 @@ non-domiciles
     >slick operation
 * discernible effect
 
+`2/18`
 ## globalization
-* the financial crash exposed how detached the global economy has become from our values
-* global epidemic of youth unemployment
-* misalignment
+* the financial crash exposed how **detached** the global economy has become from our values  
+    >impartial/fair
+* global **epidemic** of youth unemployment
+* misalignment  
+    >exchange rate misalignment vs disorder  
+    >Circadian Misalignment and Bipolar Disorder
 * experience large **spikes** in worklessness
-    >increase/proliferation/boom
+    >increase/proliferation/boom  
+    >spike the spread of the virus
 * promote the **cause** of education
 * in this **capacity**
 * this case is **compelling**.
@@ -445,6 +450,7 @@ non-domiciles
     >the sagging economy
 * the sides of the same coin
 
+`2/18`
 ## US Interstate HighWay System
 * an feat of unprecedent proportion
 * allow for rapid transport of goods and people
@@ -460,6 +466,7 @@ non-domiciles
 * have a keen eye on
 * at a fraction of the time = quickly
 
+`2/18`
 ## free market
 * the primary stimulate
 * fierce competitors
@@ -467,3 +474,70 @@ non-domiciles
 * self-perpetuating
 * it can be arguable stated = no doubt
 * deal with competition just as well equipped as its own.
+
+`2/18`
+## Do monkeys have the feeling of fairness?
+* have a reputation for slacking 
+    >slack muscle   
+    >slack-jawed yokel
+* develop sense of grievance  
+    >resent
+    >vs grief
+* good-natured/good-mannered
+    >nice both in both appearance and temperation
+* share their food **readily** = generous
+* exchange **tokens** for goods
+* slicks of cucumber 
+    >a drop of water/a piece of sea
+* induce resentment
+* righteous indignation
+* stem from = origin from  
+    >stem
+* make sth. abundantly clear
+* be attentive to the instruction  
+    >my dog is attentive to my instruction
+
+## 
+* stay out of way/stay in the way
+* inconclusive
+* lobby
+* go to early grave
+* get moving to 
+* pour fumes into the air
+* a prudent people would take out an insurance policy now
+* responsible stewards of the planet
+* bill/congress/senator
+
+## 
+* formulate his revolutionary theory
+* byproduct
+* thermostat  
+    >thermo
+* be susceptible to 
+* regulate moods
+* harness out
+* persistent nightmare
+* seek help form a therapist
+* control its **course**
+
+## the degradation/degeneration/decline of formal language
+* the beat/lost Generation  
+    >beatniks
+* permissive  
+    >permit
+* cult of the authentic and the personal
+* seek to do
+* seek an elevated tone
+* well regarded
+* performative genre  
+    >genre
+* be triumphing  over
+* spontaneity over craft  
+    >craftsman/craftsmanship
+* **elaborate** speech
+* large chunks of memorized poetry
+* propose no **radical** education reforms
+* the modestly educated
+* fashion  
+    >fashion accessoried  
+    make or shape sth,especially with your hands
