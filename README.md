@@ -497,7 +497,7 @@ non-domiciles
 * be attentive to the instruction  
     >my dog is attentive to my instruction
 
-## 
+## air pollution should not be taken lightly
 * stay out of way/stay in the way
 * inconclusive
 * lobby
@@ -508,7 +508,7 @@ non-domiciles
 * responsible stewards of the planet
 * bill/congress/senator
 
-## 
+## the relationship between dreams and emotions
 * formulate his revolutionary theory
 * byproduct
 * thermostat  
@@ -541,3 +541,67 @@ non-domiciles
 * fashion  
     >fashion accessoried  
     make or shape sth,especially with your hands
+## online advertisement
+* an impluse activity  
+    >on a whim   (L理性消费话题)
+* catch your fancy = attract one's attention/spark one's interest/seduce/lure/tempt/entice
+    >catch the fancy of  
+    take fancy for
+* stroll = saunt  
+haunt = obsession
+* dawn/dusk  
+    >the dawn of = in one's infancy
+* apply tactics  
+    >elaborate a medium/measure
+* web site with heavy traffic
+* during the course of 
+* casual and leisurely web surfing
+* in theory
+* a huge inflow of cash
+* **heighten** the information security with new technology = strengthen/enhance/reinforce
+* the volume of buying
+* periodical
+* slip their notice
+* reinvigorate the industry
+* viable = sustainable
+* do the trick
+* slump
+* be reluctant to 
+* brick and mortar
+## education equity under government intervention
+* **be congruent with**
+* improve one's skill and marketability
+* mitigate the equity issues  
+    >mitigate the negative part of 
+* increase productivity and spur progress = heighten/strength/enhance
+* fair salary distribution  
+person budget/disposable income  
+social disparities  
+discrimnination and unequal treatment  
+equalize the disparities
+* depend on the equity of access and participation in educational resources
+* a substantial segment of American
+* mandate = authorize/empower/warrant
+* civil litigation system  
+    >charge/sue/lawsuit/bring a suit against/prosecute
+* the structure of the econnomy = fabric
+* intractable
+## cloning is hotly debated
+* politically and ethically controversial
+* inception  
+from its inception = in one's fancy/the dawn of 
+* ensure the maintenance and expansion of genetic diversity
+* pave the way for
+* desperate measures
+* artificial insemination = fertilization
+* proponents/in favour of 
+## the revival of further math
+* in time of  inflation,smart investors look for a safe haven.
+* selective school
+* boost the popularity
+* a clever redesign of the syllabus
+* veterinary science
+* stem the declien/slump  
+stem the panic
+* take a leaf from
+* pass up tempting salaries
